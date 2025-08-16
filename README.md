@@ -1,5 +1,5 @@
 # Hello!❤❤👋
-Iam Rawan Ashraf — a dedicated learner with a unique background in European Civilization from Ain Shams University and a growing passion for Software Testing. Currently enrolled in the Digital Egypt Pioneers (Ro2ad Masr Al-Raqmiya) initiative, specializing in Software Testing Track.
+Iam Rawan Ashraf — a dedicated learner with a unique background in European Civilization from Ain Shams University and a growing passion for Software Testing. Currently enrolled in the Digital Egypt Pioneers (رواد مصر الرقمية) initiative, specializing in Software Testing Track.
 
 I may come from a non-technical academic background, but I’m diving deep into the tech world with curiosity, resilience, and a keen eye for detail. 🐞🛠️
 
