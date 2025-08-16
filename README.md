@@ -17,14 +17,18 @@ She/Her
 
 🤝 Aiming to join tech communities, work on real-world projects, and grow in the QA field
 
+
+
 ###⚡ One line that describes me best? 
 A curious mind from the humanities world, bridging into tech with passion, patience, and precision. 😉
+
+
 ###🎯 My Goal?
 
 To become a skilled and certified Software Tester who ensures the delivery of high-quality and user-friendly software. I believe testing is not just about finding bugs, it’s about preventing them and creating a better user experience! 💫
 
 ### 📫 How to reach me?
-- [LinkedIn](https://www.linkedin1294/.com/in/rawan-ashraf-a3494/) 
+- [LinkedIn](www.linkedin.com/in/rawan-nashraf) 
 
 
 You can ask me anything (within reason). I am looking forward to absorb knowledge🧠,gain experience 🏭, collaborate🤝 and build amazing products 🏭for the world🌍!
