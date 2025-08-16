@@ -28,7 +28,7 @@ A curious mind from the humanities world, bridging into tech with passion, patie
 To become a skilled and certified Software Tester who ensures the delivery of high-quality and user-friendly software. I believe testing is not just about finding bugs, it’s about preventing them and creating a better user experience! 💫
 
 ### 📫 How to reach me?
-- [LinkedIn](www.linkedin.com/in/rawan-nashraf) 
+- [LinkedIn](https://www.linkedin.com/in/rawan-ashraf-a34941294/) 
 
 
 You can ask me anything (within reason). I am looking forward to absorb knowledge🧠,gain experience 🏭, collaborate🤝 and build amazing products 🏭for the world🌍!
